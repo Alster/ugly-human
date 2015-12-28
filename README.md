@@ -137,3 +137,4 @@
 10. "10 самых заметных «шрамов», оставленных на теле человека эволюцией" http://www.factroom.ru/facts/48511
 11. "Генетически-модифицированного лосося разрешили подавать к столу" http://naked-science.ru/article/media/geneticheski-modifitsirovannog
 12. Дятел против сотрясения http://www.bbc.com/russian/science/2011/10/111027_woodpecker_study
+13. Человек-фавн http://www.kp.ru/daily/23735.3/54873/
